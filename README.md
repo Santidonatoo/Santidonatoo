@@ -16,7 +16,7 @@
 - En búsqueda de crecimiento profesional, abierto a propuestas laborales. Este es mi [CV](https://drive.google.com/file/d/1RvDt4oQw7Zm6omy9QbJo4WUW-rK9BSrf/view?usp=sharing)
 - Tengo buenas habilidades en la comunicación, trabajo colectivo y gran responsabilidad por el trabajo.
 
-<br><br>
+<br>
 
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"><br><br>
 
