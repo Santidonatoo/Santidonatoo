@@ -11,8 +11,7 @@
 
 <br>
 
-- Estudiante de Tercer Año de Licenciatura en Sistemas (Universidad Nacional de Lanús).
-- Actualmente, estoy en tercer año de la carrera.
+- Estudiante de Cuarto Año de Licenciatura en Sistemas (Universidad Nacional de Lanús).
 - En búsqueda de crecimiento profesional, abierto a propuestas laborales. Este es mi [CV](https://drive.google.com/file/d/1RvDt4oQw7Zm6omy9QbJo4WUW-rK9BSrf/view?usp=sharing)
 - Tengo buenas habilidades en la comunicación, trabajo colectivo y gran responsabilidad por el trabajo.
 
